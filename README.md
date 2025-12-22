@@ -1,7 +1,7 @@
 # ────୨ৎ────
 
 
-hi! im adam/snuffy
+hi! im WPNZ (weapons)
 he/her
 
  
