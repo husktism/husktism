@@ -1,7 +1,7 @@
 # ────୨ৎ────
 
 
-hi! im WPNZ (weapons)
+hi! im WPNZ (weapons) . previously snuffy, fully recovered.
 he/her
 
  
